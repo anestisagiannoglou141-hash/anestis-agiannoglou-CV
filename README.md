@@ -58,7 +58,7 @@ Internship for the writing of an article on the archaeological implementations o
 
 Interests: 
 
-Chess. Cartography. Forest Exploration.
+Chess, Cartography, Forest Exploration.
 
 Library Experience: 
 
