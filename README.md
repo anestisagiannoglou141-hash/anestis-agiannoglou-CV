@@ -18,7 +18,7 @@ Relevant Education:
 BA in History and Archaeology, University of Ioannina, Greece, 2018-2023. 
 
 MA in Classical Archaeology and Ancient History
-University of Uppsala, Sweden, 2023-2065. (The Spatiality of the Anabasis)
+University of Uppsala, Sweden, 2023-2026. (The Spatiality of the Anabasis)
 
 Languages: 
 International English Language Testing System (IELTS): 7,5/9.
