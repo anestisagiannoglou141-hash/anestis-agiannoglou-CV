@@ -62,4 +62,4 @@ Societies:
 -Member of the Hellenic Polar Zones Society, November 2023- now. Member of the Association of Ancient Historians: January 2024-now.
 
 Scholarships:
--Alex Persson Scholarship, September- October 2024.
+-Alex Persson Scholarship, September- October 2024...
