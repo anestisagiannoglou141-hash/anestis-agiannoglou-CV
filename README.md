@@ -16,25 +16,34 @@ Cell Phone number:
 
 Relevant Education: 
 -BA in History and Archaeology, University of Ioannina, Greece, 2018-2023. 
+
 -MA in Classical Archaeology and Ancient History
 University of Uppsala, Sweden, 2023-2065. (The Spatiality of the Anabasis)
 
 Languages: 
 International English Language Testing System (IELTS): 7,5/9.
+
 ECCE Michigan Proficiency, English. ESB, English.
 
 ● Greek
+
 ● English
+
 ● Ancient Greek (Attic, Koine)
+
 ● Latin
+
 ● Coptic (Sahidic)
+
 
 Summer Workshop:
 -Geoinformatics (QGIS), Archaeological Applications, July- August 2022.
+
 -ECDL Certification 
 
 Previous Excavations: 
 -Molyvoti, Thrace (MTAP), under the auspices of the American School of Classical Studies at Athens, represented by Princeton University and the Rhodopi Ephorate of Antiquities June-July 2023 
+
 -Agistri, Argosaronic (LISP), under the auspices of the Swedish Institute at Athens, represented by Uppsala University, October 2024.
 
 Museum Experience: 
