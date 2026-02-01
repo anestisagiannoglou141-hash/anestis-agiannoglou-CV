@@ -8,13 +8,13 @@ Name: Anestis Panagiotis
 
 Surname: Agiannoglou
 
-Adress: 
-Sernanders Väg 9, Uppsala, Sweden / Olympiados 48, Thessaloniki, Greece 
+Adress: Sernanders Väg 9, Uppsala, Sweden / Olympiados 48, Thessaloniki, Greece 
 
 Cell Phone number: 
 +30 6982773877 
 
 Relevant Education: 
+
 BA in History and Archaeology, University of Ioannina, Greece, 2018-2023. 
 
 MA in Classical Archaeology and Ancient History
