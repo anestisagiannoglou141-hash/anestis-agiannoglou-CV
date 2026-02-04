@@ -44,7 +44,7 @@ ESB, English.
 
 Geoinformatics (QGIS), Archaeological Applications, July- August 2022.
 
-ECDL Certification 
+ECDL Certification 2025
 
 **Previous Excavations**: 
 
